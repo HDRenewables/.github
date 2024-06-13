@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+![666864959](https://github.com/HDRenewables/.github/assets/10178964/429834b8-e0c1-4e0b-8b35-dfda5e8247eb)
+
+
 <!--
 
 **Here are some ideas to get you started:**
